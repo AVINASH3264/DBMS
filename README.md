@@ -1,1 +1,1 @@
-[AVINASH_KR_NORMALISED- dbms.pdf](https://github.com/AVINASH3264/DBMS/files/13663401/AVINASH_KR_NORMALISED-.dbms.pdf)
+
